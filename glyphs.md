@@ -1,3 +1,5 @@
+Random notes scribbed during a typomad2014 presentation :)
+
 Erich @mekkablue
 
 Something in Spanihs
